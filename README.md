@@ -11,4 +11,6 @@
 -  🤠Pronomes: ...
 - ⚡ Curiosidade: ...
 -->🤠
-  ![instagram] (www.instagram.com)
+  ![instagram] (www.instagram.com) @juliano_jb
+  ![](https://media1.tenor.com/m/t-qiowhN_FkAAAAd/swimming-olympics.gif)
+-🏊🏻‍♂️
